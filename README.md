@@ -5,4 +5,3 @@
 - 🤔 I’m looking for help with SQL
 - 📫 How to reach me: [LinkedIn URL] https://www.linkedin.com/in/hannahgeorgina/
 - 😄 Pronouns: She/Her
--->
